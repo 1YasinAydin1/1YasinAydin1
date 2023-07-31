@@ -7,7 +7,6 @@
 
 - 📫 How to reach me **gybyasin18@gmail.com**
 
-- 📄 Know about my experiences [https://www.linkedin.com/in/yasin-aydin-3aa285166/](https://www.linkedin.com/in/yasin-aydin-3aa285166/)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
